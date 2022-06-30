@@ -1,2 +1,2 @@
 "Hello world!"
-"Replace me!"
+Another day another dollar
