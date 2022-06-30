@@ -1,5 +1,7 @@
 "Hello Seatle!"
-
+2 lovers detonate
+3 lewdly, caterpillars scold
+4 burglars recollect
 
 
 5 Upside down
