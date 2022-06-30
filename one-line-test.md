@@ -1,3 +1,6 @@
 "Hello world!"
-replaced 2nd line
+
+"Another day another dollar"
+
 "Replace me with what? I can't read your mind!"
+
